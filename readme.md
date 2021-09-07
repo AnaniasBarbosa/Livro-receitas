@@ -11,5 +11,5 @@
 
 ### Agora não têm desculpa, com esse livro você será o próximo Master Chef.
 
-###### Aviso: Não devolvemos seu dinheiro, aqui não é activia, compre por sua conta e risco.
+###### Aviso: Não devolvemos seu dinheiro, aqui não é "Activia", compre por sua conta e risco.
 
